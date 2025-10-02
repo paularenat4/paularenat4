@@ -1,4 +1,4 @@
-## Olá! Eu sou a Renata 👩‍💻
+## Olá! Eu sou a Renata
 
 
 
